@@ -1,0 +1,1 @@
+Q: how to enable omarchy-style navigation on ipad?
